@@ -151,9 +151,6 @@ Aadrika Awasthi
 
 Aditya Dagar 
 
-🚀 Aspiring Product Manager & AI Enthusiast
-
-
 
 ---
 
